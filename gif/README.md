@@ -1,0 +1,1 @@
+Store GIF pictures
